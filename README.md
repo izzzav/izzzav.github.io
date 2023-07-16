@@ -23,3 +23,7 @@ Discord Server Link: https://discord.gg/DsGuuJRY6j
 Reddit: Coming Soon / WIP
 
 Twitter: @izzzav
+
+
+## See the Discord serverwide rules here:
+https://izzzav.github.io/rules/
