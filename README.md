@@ -19,5 +19,7 @@ Join us in Phalandia and embark on an extraordinary journey. Together, let us ha
 Welcome to Phalandia, where innovation knows no boundaries, and the possibilities are limited only by your imagination.
 
 Discord Server Link: https://discord.gg/DsGuuJRY6j
+
 Reddit: Coming Soon / WIP
+
 Twitter: @izzzav
